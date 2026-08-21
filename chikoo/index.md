@@ -48,7 +48,7 @@ If this policy changes, the updated version will be posted at this URL with a ne
 
 ## Contact
 
-Questions about this policy: **[YOUR SUPPORT EMAIL]**
+Questions about this policy: **shyamkumar.garud@gmail.com**
 
 ---
 
